@@ -1,9 +1,9 @@
 # -Xbox-Redeem-Codes-Giveaway---Get-Your-Free-Xbox-Gift-Cards-Here-
  Xbox offers both free  games that anybody can play and hundreds of interesting and surprising games that can be bought for very little money. However, if you want to unlock the full potential of your Xbox gaming experience, you’ll need a game passcode. Using these xbox gift card codes, you may play any premium Xbox game without having to pay full price.
 
-**[👉👉👉👉👉 CLICK HERE GET FREE](offer.tq24k.com/google-play)**
+**[👉👉👉👉👉 CLICK HERE GET FREE](https://offer.tq24k.com/google-play/)**
 
-**[👉👉👉👉👉 CLICK HERE GET FREE](offer.tq24k.com/all-gift-card)**
+**[👉👉👉👉👉 CLICK HERE GET FREE](https://offer.tq24k.com/all-gift-card/)**
 
 
  
